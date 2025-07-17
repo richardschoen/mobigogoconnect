@@ -26,6 +26,8 @@ Ready to modernize your connectivity?
 
 Let’s build the future—one connection at a time.
 
-Reach out to connect and talk about you integration pain points:
-Info: info@mobigogo.net
-Web Site: https://www.mobigogo.net
+## Reach out 
+Let's connect and talk about you integration pain points:   
+Info: info@mobigogo.net   
+Web Site: https://www.mobigogo.net    
+Phone: 612-315-1745  
