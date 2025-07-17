@@ -1,2 +1,2 @@
-# mobigogoconnect
-Product Support Site for MobiGoGo Connect
+# MobiGoGo Connect - Connect at the Speed of Mobility
+
